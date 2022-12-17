@@ -19,3 +19,6 @@ Halaman Biodata
 
 
 ![image](https://user-images.githubusercontent.com/100121611/208240332-b5adccfa-fd07-40aa-8641-3f007d63e76f.png)
+
+
+Desain Home terinspirasi dari jubah HOKAGE serial Anime NARUTO
